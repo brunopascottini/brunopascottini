@@ -5,4 +5,3 @@
 - 🇧🇷 Born and raised, living in the UK
 - 🏳️‍🌈 Pronouns: He/Him
 - 📫 [Reach out](bruno.pascottini@gmail.com)
-<br>
